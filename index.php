@@ -1,8 +1,0 @@
-a person  - chelavek, (mard)
-this is  - (sa)
-good  - xaroshiy (lav)
-busy  - zanyati (zbaxvac)
-now  - seychas (hima,ayjm)
-great  - prekrasno (hianali e,shat lav)
-successful  - uspeshniy (hajoxak)
-well don  - otlichnaya rabota (hianali ashxatanq)
